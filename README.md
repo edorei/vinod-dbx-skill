@@ -1,1 +1,1 @@
-# vinod-dbx-skill
+# vinod-dbx-skills
